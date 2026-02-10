@@ -1,4 +1,4 @@
-# Hi there, I'm Kevin Straub 👋
+# Hi there, I'm Kevin 👋
 
 ### 🔐 Aspiring Cybersecurity Analyst | Desktop Engineer | Security Enthusiast
 
